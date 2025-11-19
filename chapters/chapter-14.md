@@ -156,40 +156,36 @@ They hauled furniture from the staff quarters—bedframes, dressers, a heavy war
 
 Eleanor watched from her couch by the fire, wrapped in blankets, frostbitten fingers clutched to her chest. Guilt etched deep in the lines of her face.
 
-After an hour, the lobby resembled a medieval fortress. Three barricaded entrances, each one a wall of furniture that would slow Harold's approach.
+After an hour of heavy labor, they'd created the basic framework. Three hallway entrances blocked with furniture—solid barriers that would slow any approach.
 
-Owen stood back, breathing hard, surveying their work. "It's not perfect."
+Owen stood back, breathing hard. His muscles ached. "It's a start."
 
-"Nothing's perfect," Donnie said. "But it'll slow him. Give us time to react."
+"We'll need more," Donnie said, wiping sweat from his forehead. "But we're exhausted. Better to rest, finish properly tomorrow when we can think straight."
 
-Patricia had been taking inventory. Now she reported: "Food supplies moved to the lobby. Canned goods, dried food, crackers—enough for five days if we're careful. Water containers from the kitchen. First aid kit. Blankets." She consulted her notes. "Firewood is the critical resource. If heating fails and we can't maintain the fire, we'll freeze within hours."
+Patricia was already taking notes. "We'll need to complete a full inventory. Seal the wall panels so he can't surprise us from behind. Organize weapons, establish watch rotations—"
 
-"I'll stack extra logs," Mark volunteered. He began hauling wood from the pile near the fireplace, creating a larger stockpile.
+"Tomorrow," Owen interrupted. "We do it right, not fast."
 
-Angie organized weapons. Laid out kitchen knives on a side table—eight blades of varying sizes. The fireplace poker. Donnie's heavy wrench. Two broken chair legs that made decent clubs. A hammer from the toolbox.
+Eleanor watched from the couch, guilt etched on her face. She pulled her blankets tighter.
 
-"Not much," she said grimly.
+The group gathered supplies scattered around the lobby—blankets, water, the remaining food they'd grabbed hastily. Made themselves as comfortable as possible.
 
-"More than nothing," Owen replied.
+Outside, through the snow-covered windows, darkness had fallen. The storm had broken. Stars were visible for the first time in days.
 
-Owen looked at the dark hallways beyond their barricades. Somewhere in those shadows, in the passages behind the walls, Harold waited.
+"Weather's clearing," Donnie observed. "Roads will be plowed soon."
 
-Watching.
+"If we survive that long," Angie muttered.
 
-Planning.
+Owen looked at the dark hallway entrances beyond their partial barricades. Somewhere in those shadows, in the passages behind the walls, Harold waited.
+
+Watching them work.
+
+Planning his next move.
 
 Preparing his fire.
 
-The storm outside had broken. The sky was clearing.
+They settled in for the night, exhausted but unable to truly rest. Every sound might be Harold. Every creak might signal attack.
 
-Rescue would come soon. Days, maybe hours.
+Tomorrow they'd finish fortifying.
 
-But would it come in time?
-
-Owen didn't know.
-
-None of them did.
-
-They gathered in the lobby as darkness fell, surrounded by their improvised fortress, waiting for Harold's next move.
-
-Waiting to see if they'd survive the night.
+Tonight, they just had to survive.
